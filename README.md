@@ -1,2 +1,0 @@
-# neuZNJJ
-2023NEU
